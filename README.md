@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @HaxTire
 - 👀 I’m interested in Gaming / anime / cars
+- 🗣️ I can speak English / Persian 
 - 🌱 I’m currently learning Game development
 - 📫 How to reach me : haxtirefound@gmail.com / haxtire on discord
 
